@@ -1,1 +1,1 @@
-This is the website from a family-run villa in Greece combining mediterranean food and tours with Indian ayurveda. 
+This is the website for a family-run airbnb in Greece combining mediterranean food and service offerings with Indian ayurveda. 
